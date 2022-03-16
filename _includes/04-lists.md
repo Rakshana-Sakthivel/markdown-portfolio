@@ -4,7 +4,7 @@ A list of my favorite things:
  *🐺 
  *👶 
 *🖥️ 
-*Hobbies 
+-Hobbies 
   *🥘  
     *🗂️ 
   *👟  
